@@ -1,0 +1,1 @@
+# Schooldetails.github.io
